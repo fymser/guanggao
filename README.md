@@ -1,2 +1,2 @@
 ## 预览地址
-http://ad.yhfyh.com/
+http://ad.farrom.cn/
